@@ -13,9 +13,6 @@ anjay sekarang 3 agustus 👀
 akhirnya ada yang 20 😙🖕🏻
 </p>
 
-
-![Image](https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg)
-
 <p align="center" width="100%">
     <img width="33%" src="[https://i.stack.imgur.com/RJj4x.png](https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg)">
 </p>
