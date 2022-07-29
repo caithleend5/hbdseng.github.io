@@ -20,10 +20,9 @@ Akhirnya ada yang 20 😙🖕🏻
 
 ##### 4 Semester battling with ***codes qontol*** yang penting bisa buat readme 
 
-Tbh <sub> krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin inidoang
-</sub> yh hbd seng mwach
+Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin inidoang yh hbd seng mwach wishes nya dibawah
 
-### SCAN ME POKOKNYA
+### SCAN ME DULU TAPI 
 
 <p align="center">
   <img width="200" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Beige%20Aesthetic%20Valentine%20Coupon%20Discount%20Instagram%20Story.png">
