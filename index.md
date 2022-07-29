@@ -14,8 +14,7 @@ akhirnya ada yang 20 😙🖕🏻
 </p>
 
 <p align="center">
-  <img width="200" src="ttps://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg" 
-       >
+  <img width="200" src="ttps://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
 </p>
   
 
