@@ -7,51 +7,29 @@ Liat sate langsung bungkus 🤤
 Beli 5 gratis 10 😱
 </p>
 <p align="center">
-anjay sekarang 3 agustus 👀
+Anjay sekarang 3 agustus 👀
 </p>
 <p align="center">
-akhirnya ada yang 20 😙🖕🏻
+Akhirnya ada yang 20 😙🖕🏻
 </p>
 
 <p align="center">
-  <img width="200" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
+  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
 </p>
   
 
 ##### 4 Semester battling with ***codes qontol*** yang penting bisa buat readme 
 
-You can use the [editor on GitHub](https://github.com/caithleend5/hbdseng.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Tbh <sub> krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin inidoang
+</sub> yh hbd seng mwach
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### SCAN ME POKOKNYA
 
-### TBH
+<p align="center">
+  <img width="200" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Beige%20Aesthetic%20Valentine%20Coupon%20Discount%20Instagram%20Story.png">
+</p>
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Abaikan sizenya anjing ini hrsnya aku print cuma karena satudua hal gajadi di print HEHEH :>
 
-```markdown
-Syntax highlighted code block
+Or pencet this [link](https://drive.google.com/drive/folders/1uZUTknOVBsIVkzJc1Cd2QHprtILGgd1Q?usp=sharing) 
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and 
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/caithleend5/hbdseng.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
