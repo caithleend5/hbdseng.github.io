@@ -1,4 +1,4 @@
-## HAPPIEST BIRTHDAY ANJING
+# HAPPIEST BIRTHDAY ANJING
 
 <p align="center">
 Liat sate langsung bungkus 🤤
@@ -13,11 +13,17 @@ anjay sekarang 3 agustus 👀
 akhirnya ada yang 20 😙🖕🏻
 </p>
 
+<p align="center">
+![Image](https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg)
+</p>
+
+##### 4 Semester battling with ***codes qontol*** yang penting bisa buat readme 
+
 You can use the [editor on GitHub](https://github.com/caithleend5/hbdseng.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+### TBH
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
@@ -36,7 +42,7 @@ Syntax highlighted code block
 
 **Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
+[Link](url) and 
 ```
 
 For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
