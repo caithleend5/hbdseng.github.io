@@ -29,7 +29,6 @@ Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin i
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2019.45%20%232.jpg">
 </p>
-  
 
 yg sudah sy bungkus dengan rapih dari kemaren 
 
@@ -54,5 +53,7 @@ PLS BACANYA YG KHUSYU AKU BIKIN DR JUNI
 <p align="center">
   <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg">
 </p>
+
+  ![image](https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg)
 
 I hope you like my gifts and i hope hari ini km happy terus 24/7 full power untuk nyata simsalabim gaboleh cemberut 
