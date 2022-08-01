@@ -43,7 +43,13 @@ scan doeloe karya gg ku, tbh tema kadomu tahun ini dr ak handmadegifts d smangat
   <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Beige%20Aesthetic%20Valentine%20Coupon%20Discount%20Instagram%20Story.png">
 </p>
 
-ini hrsnya aku print cuma karena satudua hal gajadi di print HEHEH :>
-
 Or pencet this [link](https://drive.google.com/drive/folders/1uZUTknOVBsIVkzJc1Cd2QHprtILGgd1Q?usp=sharing) 
 PLS BACANYA YG KHUSYU AKU BIKIN DR JUNI
+
+## SEKIAN READ ME SY
+
+<p align="center">
+  <img width="300" src="https://github.com/caithleend5/hbdseng.github.io/blob/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg">
+</p>
+
+I hope you like my gifts and i hope hari ini km happy terus 24/7 full power untuk nyata simsalabim gaboleh cemberut 
