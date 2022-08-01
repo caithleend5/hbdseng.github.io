@@ -21,7 +21,7 @@ rafireprotprot turns twenti 😙🖕🏻
 ##### 4 Semester battling with ***codes qontol*** yang penting bisa buat readme 
 
 ```
-Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin ini doang yh hbd seng mwach wishes nya dibawah
+Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin ini doang yh hbd seng mwach wishesnya ada dibawah cari aja
 ```
 
 ### KPD RAFIRE DIMOHON UNTUK MENGAMBIL HAMPERS LEBARANNYA
