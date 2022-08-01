@@ -52,7 +52,7 @@ PLS BACANYA YG KHUSYU AKU BIKIN DR JUNI
 ## SEKIAN READ ME SY
 
 <p align="center">
-  <img width="300" src="https://github.com/caithleend5/hbdseng.github.io/blob/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg">
+  <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg">
 </p>
 
 I hope you like my gifts and i hope hari ini km happy terus 24/7 full power untuk nyata simsalabim gaboleh cemberut 
