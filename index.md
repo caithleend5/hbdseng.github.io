@@ -4,13 +4,13 @@
 Liat sate langsung bungkus 🤤
 </p>
 <p align="center">
-Beli 5 gratis 10 😱
+minumnya starbucks venti 😱
 </p>
 <p align="center">
 Anjay sekarang 3 agustus 👀
 </p>
 <p align="center">
-Akhirnya ada yang 20 😙🖕🏻
+rafireprotprot turns twenti 😙🖕🏻
 </p>
 
 <p align="center">
@@ -22,7 +22,22 @@ Akhirnya ada yang 20 😙🖕🏻
 
 Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin ini doang yh hbd seng mwach wishes nya dibawah
 
-### SCAN ME DULU TAPI 
+### KPD RAFIRE DIMOHON UNTUK MENGAMBIL HAMPERS LEBARANNYA
+
+<p align="center">
+  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2019.45%20%232.jpg">
+</p>
+  
+
+yg sudah sy bungkus dengan rapih dari kemaren 
+
+##### BACKSTORY OF THE BUNGKUS KADO 
+
+ak sempet ke gramedia diandra abis upgrading gt bodohnya **KM TAU AKU MANUSIA YANG GAPERNAH BAWA CASH** trs kyk carelessly masuk gedung parkir tanpa memikirkan nnti bayar pake apa jd aku hrs ke ATM yg diseberangnya **TERUS AKU GANGERTI CARA NYEBRANG YG MENCET TIANG ITU LHO** pas aku pencet ga ijo anjing yauda akhirnya aku jalan nyari jembatan penyebrangan wicis jauh bgt **KRN AKU KIRA TUH RUSAK** trs pas aku lg ngambil atm di indomaret ada bocil sepedaan mencet tiang trs nyebrang santai anjing????????? **PAS AKU NYOBA LG BUAT NYEBRANG TTP GABISA** jd ak lewat jembatan lg ngentot udh sekian tolong diapresiasi effort sy
+
+### BUT BEFORE THE MAIN GIFT
+
+scan doeloe karya gg ku, tbh tema kadomu tahun ini dr ak handmadegifts d smangat y liat cewemu yang gabut drkmrn ngide b
 
 <p align="center">
   <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Beige%20Aesthetic%20Valentine%20Coupon%20Discount%20Instagram%20Story.png">
