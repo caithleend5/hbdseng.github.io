@@ -37,7 +37,7 @@ ak sempet ke gramedia diandra abis upgrading gt bodohnya **KM TAU AKU MANUSIA YA
 
 ### BUT BEFORE THE MAIN GIFT
 
-scan doeloe karya gg ku, tbh tema kadomu tahun ini dr ak handmadegifts d smangat y liat cewemu yang gabut drkmrn ngide b
+scan doeloe karya gg ku, tbh tema kadomu tahun ini dr ak handmadegifts d smangat y liat cewemu yang gabut drkmrn ngide buat menghias menggambar mengsketch apapun yg bisa dikreasikan krn ak cewe 4 sehat 5 sempurna multitalent dan sedang nganggur SETENGAH NGANGGUR krn lg maba jd ganyari magang hihihihihihi
 
 <p align="center">
   <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Beige%20Aesthetic%20Valentine%20Coupon%20Discount%20Instagram%20Story.png">
