@@ -20,7 +20,9 @@ rafireprotprot turns twenti 😙🖕🏻
 
 ##### 4 Semester battling with ***codes qontol*** yang penting bisa buat readme 
 
+```
 Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin ini doang yh hbd seng mwach wishes nya dibawah
+```
 
 ### KPD RAFIRE DIMOHON UNTUK MENGAMBIL HAMPERS LEBARANNYA
 
@@ -33,7 +35,8 @@ yg sudah sy bungkus dengan rapih dari kemaren
 
 ##### BACKSTORY OF THE BUNGKUS KADO 
 
-ak sempet ke gramedia diandra abis upgrading gt bodohnya **KM TAU AKU MANUSIA YANG GAPERNAH BAWA CASH** trs kyk carelessly masuk gedung parkir tanpa memikirkan nnti bayar pake apa jd aku hrs ke ATM yg diseberangnya **TERUS AKU GANGERTI CARA NYEBRANG YG MENCET TIANG ITU LHO** pas aku pencet ga ijo anjing yauda akhirnya aku jalan nyari jembatan penyebrangan wicis jauh bgt **KRN AKU KIRA TUH RUSAK** trs pas aku lg ngambil atm di indomaret ada bocil sepedaan mencet tiang trs nyebrang santai anjing????????? **PAS AKU NYOBA LG BUAT NYEBRANG TTP GABISA** jd ak lewat jembatan lg ngentot udh sekian tolong diapresiasi effort sy
+
+> ak sempet ke gramedia diandra abis upgrading gt bodohnya **KM TAU AKU MANUSIA YANG GAPERNAH BAWA CASH** trs kyk carelessly masuk gedung parkir tanpa memikirkan nnti bayar pake apa jd aku hrs ke ATM yg diseberangnya **TERUS AKU GANGERTI CARA NYEBRANG YG MENCET TIANG ITU LHO** pas aku pencet ga ijo anjing yauda akhirnya aku jalan nyari jembatan penyebrangan wicis jauh bgt **KRN AKU KIRA TUH RUSAK** trs pas aku lg ngambil atm di indomaret ada bocil sepedaan mencet tiang trs nyebrang santai anjing????????? **PAS AKU NYOBA LG BUAT NYEBRANG TTP GABISA** jd ak lewat jembatan lg ngentot udh sekian tolong diapresiasi effort sy
 
 ### BUT BEFORE THE MAIN GIFT
 
