@@ -55,4 +55,4 @@ PLS BACANYA YG KHUSYU AKU BIKIN DR JUNI
 </p>
 
 
-I hope you like my gifts and i hope hari ini km happy terus 24/7 full power untuk nyata simsalabim gaboleh cemberut 
+I hope you like my gifts and i hope hari ini km happy kiyowo terus 24/7 full power simsalabim gaboleh cemberut sayang LOVE U LOTZ
