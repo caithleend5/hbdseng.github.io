@@ -46,7 +46,7 @@ udah sih solely for that reason HEHEH ૮₍ ˃ ⤙ ˂ ₎ა
 ## Kpd Yts. Thoriq Farizan Afif 
 ((yang tersayang)) 
 
-Please scan the barcode below or click to continue [TO LEVEL 2](https://drive.google.com/drive/folders/1uZUTknOVBsIVkzJc1Cd2QHprtILGgd1Q?usp=sharing) 
+Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https://drive.google.com/drive/folders/1uZUTknOVBsIVkzJc1Cd2QHprtILGgd1Q?usp=sharing) 
 
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2019.45%20%232.jpg">
