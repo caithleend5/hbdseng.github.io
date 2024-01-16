@@ -38,14 +38,14 @@ will i get sum bday seggz 𓀿𓀐
   <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/533cb9b6d6b0d8052adc960d3535f69e.jpeg">
 </p>
 
-# Backstory
+#Backstory
 
 ```
 The reason why i made this karena daripada aku ngasih kamu lgsg link drive jelek anjir (╥﹏╥)
 ```
 udah sih solely for that reason HEHEH ૮₍ ˃ ⤙ ˂ ₎ა
 
-# Kpd Yts. Thoriq Farizan Afif 
+#Kpd Yts. Thoriq Farizan Afif 
 ((yang tersayang)) 
 
 Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https://drive.google.com/drive/folders/1i6B1682YMfo3hG8dLMmmin6E7mTslEOc?usp=sharing)
@@ -58,7 +58,7 @@ Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https:
 Kindly follow the steps provided in the following link.
 </p>
 
-# Thank you for visiting the first page of suprise!
+#Thank you for visiting the first page of suprise!
 
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-17%20at%2000.24.29.png">
