@@ -27,7 +27,7 @@ hti hti jgn kegoceks #02ew🤮
 wadaw hri ini 7 feb bozs (*´▽`*)
 </p>
 <p align="center">
-will i get sum bday seggz 𓀿𓀐
+offering u tons of bday seggz 𓀿𓀐
 </p>
 
 <p align="center">
