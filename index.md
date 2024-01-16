@@ -1,7 +1,7 @@
 # Welcome to your 21st Virtual Celebration, Oyiq! (๑ > ᴗ <๑)
 
 <p align="center">
-  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
+  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-17%20at%2000.19.52.png">
 </p>
 
 Welcome to Oyiq's Birthday Page! 🎉 Navigate through this virtual space crafted with love to commemorate your birthday (≧ヮ≦) 💕. 
@@ -33,7 +33,7 @@ will i get sum bday seggz 𓀿𓀐
 ༼ つ ◕_◕ ༽つ <3 bercanda all i need is your pukpuk
 
 <p align="center">
-  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
+  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/533cb9b6d6b0d8052adc960d3535f69e.jpeg">
 </p>
 
 ## Backstory
@@ -57,7 +57,7 @@ Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https:
 ## Thank you for visiting the first page of suprise!
 
 <p align="center">
-  <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg">
+  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-17%20at%2000.24.29.png">
 </p>
 
 I hope you like the gifts that i prepared for you ( ˶ˆ꒳ˆ˵ ), KALO FLOP MAAF BGT RIL INI MH CUY
