@@ -48,7 +48,7 @@ udah sih solely for that reason HEHEH ૮₍ ˃ ⤙ ˂ ₎ა
 ## Kpd Yts. Thoriq Farizan Afif 
 ((yang tersayang)) 
 
-Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https://drive.google.com/drive/folders/1i6B1682YMfo3hG8dLMmmin6E7mTslEOc?usp=sharing) 
+Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https://drive.google.com/drive/folders/1i6B1682YMfo3hG8dLMmmin6E7mTslEOc?usp=sharing)
 
 <p align="center">
   <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Blue%20and%20Orange%20Illustrated%20Scan%20QR%20Code%20Flyer.png">
