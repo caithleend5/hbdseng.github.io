@@ -46,7 +46,7 @@ The reason why i made this karena daripada aku ngasih kamu lgsg link drive jelek
 udah sih solely for that reason HEHEH ૮₍ ˃ ⤙ ˂ ₎ა
 
 # Kpd Yts. Thoriq Farizan Afif 
-((yang tersayang)) 
+((yang tersayang))
 
 Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https://drive.google.com/drive/folders/1i6B1682YMfo3hG8dLMmmin6E7mTslEOc?usp=sharing)
 
