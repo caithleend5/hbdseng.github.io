@@ -1,58 +1,63 @@
-# HAPPIEST BIRTHDAY RAFIREPROTPROT
-
-<p align="center">
-Liat sate langsung bungkus 🤤
-</p>
-<p align="center">
-minumnya starbucks venti 😱
-</p>
-<p align="center">
-Anjay sekarang 3 agustus 👀
-</p>
-<p align="center">
-rafireprotprot turns twenti 😙🖕🏻
-</p>
+# Welcome to your 21st Virtual Celebration, Oyiq! (๑ > ᴗ <๑)
 
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
 </p>
-  
 
-4 Semester battling with ***codes qontol*** yang penting bisa buat readme 
+Welcome to Oyiq's Birthday Page! 🎉 Navigate through this virtual space crafted with love to commemorate your birthday (≧ヮ≦) 💕. 
+Feel free to explore the pages filled with heartfelt messages because you deserve all the happiness in the world!
+
+## TBH, aku belajar ulang basic for this, I DESERVE SUM KISSES ( • ᴖ • ｡)
+
+This is just the beginning of me showering you with love on your **21st birthday** YAY! before that i'd like to insert A QUOTE.
+
+>Birthdays of those profoundly cherished in our lives deserve not just celebration but a grand symphony of gratitude, a reflection of the immense impact they've had on our existence.
+
+Know that your existence **means a lot to me and i wouldnt change a thing ⸜(｡˃ ᵕ ˂ )⸝♡**
+
+## IZINKAN SY PANTUN DL BROK
+
+<p align="center">
+14 feb ayo coblos 🏹
+</p>
+<p align="center">
+hti hti jgn kegoceks #02ew🤮
+</p>
+<p align="center">
+wadaw hri ini 7 feb bozs (*´▽`*)
+</p>
+<p align="center">
+will i get sum ~~bday seggz~~ 𓀿𓀐
+</p>
+
+༼ つ ◕_◕ ༽つ <3 bercanda all i need is your pukpuk
+
+<p align="center">
+  <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/87d42bf0c81a67b11d583e673e125d9f.jpeg">
+</p>
+
+## Backstory
 
 ```
-Tbh krn readme ak selalu nyontek jd ak bru purely belajar syntaxnya buat bikin ini doang yh hbd seng mwach wishesnya ada dibawah cari aja
+The reason why i made this karena daripada aku ngasih kamu lgsg link drive jelek anjir (╥﹏╥)
 ```
+udah sih solely for that reason HEHEH ૮₍ ˃ ⤙ ˂ ₎ა
 
-## KPD RAFIRE DIMOHON UNTUK MENGAMBIL HAMPERS LEBARANNYA
+## Kpd Yts. Thoriq Farizan Afif 
+((yang tersayang)) 
+
+Please scan the barcode below or click to continue level2 [link](https://drive.google.com/drive/folders/1uZUTknOVBsIVkzJc1Cd2QHprtILGgd1Q?usp=sharing) 
 
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2019.45%20%232.jpg">
 </p>
 
-yg sudah sy bungkus dengan rapih dari kemaren 
+**Kindly follow the steps provided in the following link.**
 
-##### BACKSTORY OF THE BUNGKUS KADO 
-
-
-> ak sempet ke gramedia diandra abis upgrading gt bodohnya **KM TAU AKU MANUSIA YANG GAPERNAH BAWA CASH** trs kyk carelessly masuk gedung parkir tanpa memikirkan nnti bayar pake apa jd aku hrs ke ATM yg diseberangnya **TERUS AKU GANGERTI CARA NYEBRANG YG MENCET TIANG ITU LHO** pas aku pencet ga ijo anjing yauda akhirnya aku jalan nyari jembatan penyebrangan wicis jauh bgt **KRN AKU KIRA TUH RUSAK** trs pas aku lg ngambil atm di indomaret ada bocil sepedaan mencet tiang trs nyebrang santai anjing????????? **PAS AKU NYOBA LG BUAT NYEBRANG TTP GABISA** jd ak lewat jembatan lg ngentot udh sekian tolong diapresiasi effort sy
-
-## BUT BEFORE THE MAIN GIFT
-
-scan doeloe karya gg ku, tema kadomu tahun ini dr ak handmadegifts d smangat y liat cewemu yang gabut drkmrn ngide buat menghias menggambar mengsketch apapun yg bisa dikreasikan hihihi
-
-<p align="center">
-  <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Beige%20Aesthetic%20Valentine%20Coupon%20Discount%20Instagram%20Story.png">
-</p>
-
-Or pencet this [link](https://drive.google.com/drive/folders/1uZUTknOVBsIVkzJc1Cd2QHprtILGgd1Q?usp=sharing) 
-PLS BACANYA YG KHUSYU AKU BIKIN DR JUNI
-
-## SEKIAN READ ME SY
+## Thank you for visiting the first page of suprise!
 
 <p align="center">
   <img width="300" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Photo%20on%2001-08-22%20at%2020.38.jpg">
 </p>
 
-
-I hope you like my gifts and i hope hari ini km happy kiyowo terus 24/7 full power simsalabim gaboleh cemberut sayang LOVE U LOTZ
+I hope you like the gifts that i prepared for you ( ˶ˆ꒳ˆ˵ ), KALO FLOP MAAF BGT RIL INI MH CUY
