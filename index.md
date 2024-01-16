@@ -58,7 +58,7 @@ Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https:
 Kindly follow the steps provided in the following link.
 </p>
 
-# Thank you for visiting the first page of suprise!
+# Thank you for visiting the first page of surprise!
 
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-17%20at%2000.24.29.png">
