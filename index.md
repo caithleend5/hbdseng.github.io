@@ -30,8 +30,10 @@ wadaw hri ini 7 feb bozs (*´▽`*)
 will i get sum bday seggz 𓀿𓀐
 </p>
 
+<p align="center">
 ༼ つ ◕_◕ ༽つ <3 bercanda all i need is your pukpuk
-
+</p>
+  
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/533cb9b6d6b0d8052adc960d3535f69e.jpeg">
 </p>
