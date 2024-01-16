@@ -27,7 +27,7 @@ hti hti jgn kegoceks #02ew🤮
 wadaw hri ini 7 feb bozs (*´▽`*)
 </p>
 <p align="center">
-will i get sum ~~bday seggz~~ 𓀿𓀐
+will i get sum bday seggz 𓀿𓀐
 </p>
 
 ༼ つ ◕_◕ ༽つ <3 bercanda all i need is your pukpuk
