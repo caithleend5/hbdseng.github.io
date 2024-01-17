@@ -47,21 +47,21 @@ The reason why i made this karena biar aku terlihat keren aja LOL ૮₍ ˃ ⤙ 
 # Kpd Yts. Thoriq Farizan Afif 
 ((yang tersayang))
 
-Today marks the beginning of my gift to you—expressing my love through the **five love languages**. The journey starts with acts of service. Below are the vouchers that you can redeem (even though I would still do these things for you without it) ପ(๑•ᴗ•๑)ଓ ♡.
+Today marks the beginning of my gift to you—expressing my love through the **five love languages**. The journey starts with **acts of service**. Below are the vouchers that you can redeem (even though I would still do these things for you without it) ପ(๑•ᴗ•๑)ଓ ♡.
 
 <p align="center">
   <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Red%20Yellow%20Simple%20Love%20Coupon.png">
 </p>
 
-The next one is quality time, I've prepared a list of date plans in this [link](https://docs.google.com/spreadsheets/d/1VcRE1KqaEkVy0h1p24h_PKxLW2BOHgvoS0yIqLPP1DI/edit?usp=sharing). As time unfolds, expect this list to grow with additional destinations( ＾◡＾)っ✂╰⋃╯.
+The next one is **quality time**, I've prepared a list of date plans in this [link](https://docs.google.com/spreadsheets/d/1VcRE1KqaEkVy0h1p24h_PKxLW2BOHgvoS0yIqLPP1DI/edit?usp=sharing). As time unfolds, expect this list to grow with additional destinations( ＾◡＾)っ✂╰⋃╯.
 
 Next is, **PHYSICAL TOUCH!** which obviously, i cannot give you right now so feel free to redeem the vouchers above (and get a free bj ((bread jam)) ) ૮ ˙Ⱉ˙ ა rawr!
 
 ### Here comes me showering you with your favorite love language!
 
-Please click to continue [TO THE NEXT SURPRISE](https://drive.google.com/file/d/14R4Ap6rPV627Ti8jWm1Mft2fpbUYRnBm/view?usp=sharing)
+Please click to get your [special gift](https://drive.google.com/file/d/14R4Ap6rPV627Ti8jWm1Mft2fpbUYRnBm/view?usp=sharing)
 
-Lastly, receiving gift love language!
+And last but not least, **receiving gift love language!**
 
 <p align="center">
   <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-18%20at%2000.51.25.png">
