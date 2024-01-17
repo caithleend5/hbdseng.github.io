@@ -1,5 +1,7 @@
+<p align="center">
 # (๑ > ᴗ <๑) Oyiq's 21st Birthday Page (๑ > ᴗ <๑)
-
+</p>
+  
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-17%20at%2000.19.52.png">
 </p>
@@ -41,21 +43,34 @@ offering u tons of bday seggz 𓀿𓀐
 # Backstory
 
 ```
-The reason why i made this karena daripada aku ngasih kamu lgsg link drive jelek anjir (╥﹏╥)
+The reason why i made this karena biar aku terlihat keren aja LOL ૮₍ ˃ ⤙ ˂ ₎ა GAJUGA DENG please dont think this as too much sayang i really dont mind doing this for you mwach, happy birthday sayangku enjoy your birth DAY!
 ```
-udah sih solely for that reason HEHEH ૮₍ ˃ ⤙ ˂ ₎ა
 
 # Kpd Yts. Thoriq Farizan Afif 
 ((yang tersayang))
 
-Please scan the barcode below or click to continue [TO THE NEXT SURPRISE](https://drive.google.com/drive/folders/1i6B1682YMfo3hG8dLMmmin6E7mTslEOc?usp=sharing)
+Today marks the beginning of my gift to you—expressing my love through the **five love languages**. The journey starts with acts of service. Below are the vouchers that you can redeem (even though I would still do these things for you without it) ପ(๑•ᴗ•๑)ଓ ♡.
 
 <p align="center">
-  <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Blue%20and%20Orange%20Illustrated%20Scan%20QR%20Code%20Flyer.png">
+  <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Red%20Yellow%20Simple%20Love%20Coupon.png">
+</p>
+
+The next one is quality time, I've prepared a list of date plans in this [link](https://docs.google.com/spreadsheets/d/1VcRE1KqaEkVy0h1p24h_PKxLW2BOHgvoS0yIqLPP1DI/edit?usp=sharing). As time unfolds, expect this list to grow with additional destinations( ＾◡＾)っ✂╰⋃╯.
+
+Next is, **PHYSICAL TOUCH!** which obviously, i cannot give you right now so feel free to redeem the vouchers above (and get a free bj ((bread jam)) ) ૮ ˙Ⱉ˙ ა rawr!
+
+### Here comes me showering you with your favorite love language!
+
+Please click to continue [TO THE NEXT SURPRISE](https://drive.google.com/file/d/14R4Ap6rPV627Ti8jWm1Mft2fpbUYRnBm/view?usp=sharing)
+
+Lastly, receiving gift love language!
+
+<p align="center">
+  <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-18%20at%2000.51.25.png">
 </p>
 
 <p align="center">
-Kindly follow the steps provided in the following link.
+  <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-18%20at%2000.51.35.png">
 </p>
 
 # Thank you for visiting the first page of surprise!
