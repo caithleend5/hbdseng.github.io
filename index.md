@@ -1,6 +1,4 @@
-<p align="center">
 # (๑ > ᴗ <๑) Oyiq's 21st Birthday Page (๑ > ᴗ <๑)
-</p>
   
 <p align="center">
   <img width="400" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Screen%20Shot%202024-01-17%20at%2000.19.52.png">
