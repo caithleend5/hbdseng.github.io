@@ -59,6 +59,7 @@ Next is, **PHYSICAL TOUCH!** which obviously, i cannot give you right now so fee
 
 ### Here comes me showering you with your favorite love language!
 
+BRACE YOURSELF ⸜(｡˃ ᵕ ˂ )⸝♡ THIS ONE NEEDS SUM EXTRA ENERGY
 Please click to get your [special gift](https://drive.google.com/file/d/14R4Ap6rPV627Ti8jWm1Mft2fpbUYRnBm/view?usp=sharing)
 
 And last but not least, **receiving gift love language!**
