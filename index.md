@@ -21,7 +21,7 @@ Know that your existence **means a lot to me and i wouldnt change a thing ⸜(�
 14 feb ayo coblos 🏹
 </p>
 <p align="center">
-hti hti jgn kegoceks #02ew🤮
+hti hti jgn kegoceks
 </p>
 <p align="center">
 wadaw hri ini 7 feb bozs (*´▽`*)
