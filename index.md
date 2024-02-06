@@ -47,7 +47,7 @@ The reason why i made this karena biar aku terlihat keren aja LOL ૮₍ ˃ ⤙ 
 # Kpd Yts. Thoriq Farizan Afif 
 ((yang tersayang))
 
-Today marks the beginning of my gift to you—expressing my love through the **five love languages**. The journey starts with **acts of service**. Below are the vouchers that you can redeem (even though I would still do these things for you without it) ପ(๑•ᴗ•๑)ଓ ♡.
+This page marks the beginning of my gift to you—expressing my love through the **five love languages**. The journey starts with **acts of service**. Below are the vouchers that you can redeem (even though I would still do these things for you without it) ପ(๑•ᴗ•๑)ଓ ♡.
 
 <p align="center">
   <img width="600" src="https://raw.githubusercontent.com/caithleend5/hbdseng.github.io/gh-pages/Red%20Yellow%20Simple%20Love%20Coupon.png">
